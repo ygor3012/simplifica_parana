@@ -1,0 +1,1 @@
+# simplifica_parana
